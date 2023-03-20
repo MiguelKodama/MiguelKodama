@@ -1,3 +1,3 @@
 - 👋 Olá, eu sou @MiguelKodama
-- 🌱 2 ano EM
+- 🌱 2° ano EM
 - 📫 Como me contatar: miguel.kodama.santos@escola.pr.gov.br
