@@ -1,3 +1,3 @@
 - 👋 Olá, eu sou @MiguelKodama
-- 🌱 Estou no 1 ano d do ensino médio
+- 🌱 2 ano EM
 - 📫 Como me contatar: miguel.kodama.santos@escola.pr.gov.br
